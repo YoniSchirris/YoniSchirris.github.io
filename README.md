@@ -22,7 +22,8 @@ Laten we hier allemaal levend, gezond, en zonder oorlogstrauma's uitkomen.
 
 - 
 
-- - De Nederlandse maatregelen 
+- - Thuisarts: [hoe krijg je corona, wat kun je ertegen doen, wat te doen wanneer je ziek bent / het nieuwe corona virus denkt te hebben](https://www.thuisarts.nl/nieuw-coronavirus/ik-denk-dat-ik-nieuwe-coronavirus-heb)
+  - [De Nederlandse maatregelen 12 maart](https://www.rijksoverheid.nl/actueel/nieuws/2020/03/12/nieuwe-maatregelen-tegen-verspreiding-coronavirus-in-nederland)
   - [RIVM: Introductie: het corona virus](https://www.rivm.nl/coronavirus/covid-19)
   - [RIVM: Alle officiele vragen en antwoorden over het Corona virus](https://www.rivm.nl/coronavirus/covid-19/vragen-antwoorden)
   - Rijksoverheid: [Veelgestelde vragen over de gevolgen van het coronavirus voor onderwijs, kinderopvang, werknemers, werkgevers, ondernemers, reizigers en openbaar vervoer](https://www.rijksoverheid.nl/onderwerpen/coronavirus-covid-19)
