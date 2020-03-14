@@ -1,4 +1,4 @@
-# Een verzameling van geloofwaardige Nederlandse informatie over het COVID-19 virus
+# Een verzameling van betrouwbare Nederlandse informatie over het COVID-19 virus
 
 Ik wil het verspreiden van 'fake news' voorkomen, en de Nederlandse samenleving op de hoogte houden van feitelijke informatie over het Coronavirus. Hierbij enkele artikelen en plekken om de meest up-to-date en feitelijke informatie te vinden. Daarbovenop hoop ik duidelijk te maken dat dit een serieus probleem, waaraan we samen kunnen werken om het minder erg te laten zijn.
 
