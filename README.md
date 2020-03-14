@@ -1,6 +1,8 @@
 # Een verzameling van geloofwaardige Nederlandse informatie over het COVID-19 virus
 
-Ik wil het verspreiden van 'fake news' voorkomen, en de Nederlandse samenleving op de hoogte houden van feitelijke informatie over het Coronavirus. Hierbij enkele artikelen en plekken om de meest up-to-date en feitelijke informatie te vinden:
+Ik wil het verspreiden van 'fake news' voorkomen, en de Nederlandse samenleving op de hoogte houden van feitelijke informatie over het Coronavirus. Hierbij enkele artikelen en plekken om de meest up-to-date en feitelijke informatie te vinden. Daarbovenop hoop ik duidelijk te maken dat dit een serieus probleem, waaraan we samen kunnen werken om het minder erg te laten zijn.
+
+Ik hoop dat deze artikelen goed gedrag kunnen stimuleren en hiermee de verspreiding van het virus verminderen, zodat artsen de komende weken **niet** in de situatie komen waarin zij keuzes moeten maken over wie leeft en wie sterft. Laten we hier allemaal levend, gezond, en zonder oorlogstrauma's uitkomen.
 
 - - **Bel niet naar 112 met vragen over het Corona virus. Vind alle informatie hieronder**
 
