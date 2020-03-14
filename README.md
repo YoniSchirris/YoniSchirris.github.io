@@ -30,7 +30,7 @@ Laten we hier allemaal levend, gezond, en zonder oorlogstrauma's uitkomen.
 
   - NOS: [Video: Het coronavirus, feiten en fabels](https://www.youtube.com/watch?v=usu4Kqjia5I&feature=youtu.be&t=130)
 
-  - [Geloof het “stanford” bericht op Whatsapp/Facebook niet](https://www.motherjones.com/politics/2020/03/theres-a-facebook-coronavirus-post-going-viral-claiming-to-be-from-stanford-dont-believe-it/)
+  - [Geloof het “stanford” bericht op Whatsapp/Facebook niet](https://www.motherjones.com/politics/2020/03/theres-a-facebook-coronavirus-post-going-viral-claiming-to-be-from-stanford-dont-believe-it/), de echte Stanford informatie kun je [hier](https://stanfordhealthcare.org/stanford-health-care-now/2020/novel-coronavirus.html) vinden.
 
   - NOS:[ Video: Waarom je je handen moet wassen, en geen handen moet schudden](https://www.youtube.com/watch?v=Xjxv1r9oyz0)
 
