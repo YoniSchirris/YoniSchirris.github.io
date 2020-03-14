@@ -1,5 +1,6 @@
-# YoniSchirris.github.io
-Een verzameling van geloofwaardige Nederlandse informatie over het COVID-19 virus
+# Een verzameling van geloofwaardige Nederlandse informatie over het COVID-19 virus
+
+Ik wil het verspreiden van 'fake news' voorkomen, en de Nederlandse samenleving op de hoogte houden van feitelijke informatie over het Coronavirus. Hierbij enkele artikelen en plekken om de meest up-to-date en feitelijke informatie te vinden:
 
 - - **Bel niet naar 112 met vragen over het Corona virus. Vind alle informatie hieronder**
 
