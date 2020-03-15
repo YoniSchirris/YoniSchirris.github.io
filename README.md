@@ -34,4 +34,5 @@ Laten we hier allemaal levend, gezond, en zonder oorlogstrauma's uitkomen.
   - NOS:[ Video: Waarom je je handen moet wassen, en geen handen moet schudden](https://www.youtube.com/watch?v=Xjxv1r9oyz0)
   - [Wikipedia: Besmetting, overdracht, quarantaine, isolate, symptomen, diagnose, behandeling](https://nl.wikipedia.org/wiki/COVID-19)
   - [Blijf de fuck thuis! Een beweging om de COVID-19 pandemie te stoppen](https://staythefuckhome.com/nl/)
+  - Linkedin: [Een grafische extrapolatie van de gemeten gevallen, en waar ze wellicht al zijn](https://www.linkedin.com/feed/update/urn:li:activity:6643607601290498049/)
   - [Check het nieuws wat je leest met de nieuwschecker](https://nieuwscheckers.nl/)
